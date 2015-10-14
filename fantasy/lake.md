@@ -55,4 +55,49 @@ It enveloped my moist skin and turned the water to steam.
 Within minutes the heat was too much to bear and I let it go, returning to its normal path, billowing up from the fire into the night.
 The cold night air was quick to fill the void, and I was sad for the loss.
 
+I sat in the glow of the campfire for what felt like hours.
+The sparks sprang to life in my site, sizzling into the night before fading on the beach.
+Some raced for the heavens, rising with the heat.
+ 
+I began to rise with the sparks, my consciousness expanding to encompass the body of heat rising into the night.
+The energy flowed through me and I was alive with it.
+
+It's hard to describe the feeling of raw power.
+It's like cold water splashed on your face in the morning, and a heated blanket wrapped around you in the night, at the same time.
+Invigorating. Life affirming.
+
+This was what I lived for. 
+My time in the mountains, naked and alone on the shores of this lake, communing with the raw elements of nature.
+
+It wasn't just for pleasure though.
+I brought myself down off my high, focusing my concentration on the shoreline below.
+Small pin points glimmered on the beach along the waterline.
+Not with a real light, but with a magical promise, shining brightly in my focused vision.
+
+I reached out and brought three of them into my consciousness.
+They registered like little reservoirs in the back of my mind.
+These were small, but that would be easier to start with.
+I poured my energy into them, filling them up from my own internal store.
+The effort drained me somewhat, but I was bolstered by my commune with the campfire and my energy was quickly restored.
+
+Those stones full, I released them and reach out to several more.
+I repeated this process in a never ending cycle, pouring energy into the surrounding beach.
+The pattern was familiar to me and it quickly deepened my trance.
+The cycles because a blur and the blur quickly turned into a torrent.
+
+A few hours after dawn the last heat of the campfire faded.
+By this point my commune had expanded past the raw energy of the flame to the forest around me, and even the lake.
+The rising sun bolstered me even more, such that the loss of the fire was barely noticed.
+
+I awoke just after nightfall.
+The blanket had fallen away at some point and the cool air bit into my naked skin.
+I stood creakily, stretching my stiff limbs and shaking the sand off.
+
+I looked around the beach, admiring my work.
+My vision was still attuned to the currents of power and so up and down the shoreline small but brilliant points of light shone through the watter, glimmering and refracting in the light lapping waves. 
+These were the product of my trance.
+The primary purpose of my monthly journey.
+
+Pure, high grade, light stones.
+
 
