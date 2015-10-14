@@ -11,7 +11,7 @@ No good for any real lights, but suitable for my needs as a beacon.
 With a mental prod the enchantment, already laid into the stone on a similar trip earlier this summer, came to life and the stone lit up with a strong glow.
 Another prod and the hover enchantment was activated and the stone floated up above my head, about six feet in the air.
 A final prod and the stone's reservoir was tied into the local flow.
-It could now sustain itself through the night. 
+It could now sustain itself for several days. 
 At that height I'd be able to see it across the water, to guide me back.
 
 I stripped off my clothing, setting it in loose a pile on the rock.
