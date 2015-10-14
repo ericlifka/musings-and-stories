@@ -1,8 +1,9 @@
 The sun was just dipping behind the tops of the trees as I made my way down the shore line.
-It was mid fall and the air was starting to get chili.
-Soon it would be too cold to make the journey up here.
+It was mid fall and the air was starting to get a bite to it.
+This was most likely my last collection trip for the year.
+Soon it would be too cold to make the journey.
  
-I took off my bag and set it on a now familiar rock by the water's edge.
+I took off my bag and set it on a now very familiar rock by the water's edge.
 I rummaged inside, pulling out my light stone.
 It was a big clunky affair, rough quartz with no clarity to it.
 No good for any real lights, but suitable for my needs as a beacon.
