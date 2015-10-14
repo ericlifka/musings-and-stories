@@ -33,3 +33,26 @@ The lake was long and twisting, but not terribly wide.
 It only took about ten minutes of steady swimming to reach the other side.
 Nonetheless my teeth were chattering by the time I stepped out of the water.
 
+I scanned the treeline, looking for the telltale signs of my small camp in the fading light.
+I spotted it about twenty paces off.
+It was just far enough under the trees to not be exposed, but still on the sandy shore.
+
+I walked over, shaking and rubbing as much of the water from my skin as I could.
+The camp consisted of very little, just a pre-made campfire I left for myself and an old warn out blanket tucked under a tree root.
+I pulled out the blanket and wrapped it around myself.
+It was somewhat damp, and more than a little musty, but I was glad for the warmth it provided.
+
+The small campfire I had left prepared was strewn about, probably animal curiosity.
+I gathered up the small sticks and remade the loose pile.
+A small mental suggestion was all it took to bring a small flame to the pile.
+Nature would take care of the rest.
+I spent the last of the daylight gathering larger branches and deadwood to fuel my small fire.
+Once I had a small wood pile and a mid sized bonfire I stopped my labor and sat in the warmth.
+
+I reached out to the warmth and cajoled it into enfolding me.
+It seeped into my dingy blanket and drove the moisture away.
+It enveloped my moist skin and turned the water to steam. 
+Within minutes the heat was too much to bear and I let it go, returning to its normal path, billowing up from the fire into the night.
+The cold night air was quick to fill the void, and I was sad for the loss.
+
+
