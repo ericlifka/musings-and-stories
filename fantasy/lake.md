@@ -92,12 +92,8 @@ The rising sun bolstered me even more, such that the loss of the fire was barely
 I awoke just after nightfall.
 The blanket had fallen away at some point and the cool air bit into my naked skin.
 I stood creakily, stretching my stiff limbs and shaking the sand off.
-
+ 
+My vision was still attuned to the currents of power that had been running through me. 
+Up and down the shoreline small but brilliant points of light shone through the watter, glimmering and refracting in the lapping waves. 
 I looked around the beach, admiring my work.
-My vision was still attuned to the currents of power and so up and down the shoreline small but brilliant points of light shone through the watter, glimmering and refracting in the light lapping waves. 
-These were the product of my trance.
-The primary purpose of my monthly journey.
-
-Pure, high grade, light stones.
-
-
+Thousands of small but potent power stones.
