@@ -95,4 +95,15 @@ I stood creakily, stretching my stiff limbs and shaking the sand off.
  
 My vision was still attuned to the currents of power that had been running through me. 
 Up and down the shoreline small but brilliant points of light shone through the watter, glimmering and refracting in the lapping waves. 
-I looked around the beach, admiring my work: _thousands_ of small but potent power stones.
+I looked around the beach, admiring my work:
+_thousands_ of small but potent power stones.
+
+Power stones are conceptually very simple: 
+Any inanimate  object can be used to store magic.
+However most materials have chaotic structures and the stored magic bleeds off very quickly.
+Crystals are one of the few substances with a structure conducive to containing raw magical energy long term.
+The purer the crystal, the longer the store will last.
+And the more it's worth.
+
+That was really why I was here.
+These crystals were worth $$$, and I was _really_ poor. 
