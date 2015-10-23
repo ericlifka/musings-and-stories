@@ -101,9 +101,9 @@ _thousands_ of small but potent power stones.
 Power stones are conceptually very simple: 
 Any inanimate  object can be used to store magic.
 However most materials have chaotic structures and the stored magic bleeds off very quickly.
-Crystals are one of the few substances with a structure conducive to containing raw magical energy long term.
-The purer the crystal, the longer the store will last.
-And the more it's worth.
+Crystals and gems are one of the few substances with a structure conducive to containing raw magical energy for long periods.
+The purer the crystalline structure, the longer the store will last.
+And of course, the more it's worth.
 
 That was really why I was here.
-These crystals were worth $$$, and I was _really_ poor. 
+Some of these crystals were worth good money, and I was _really_ poor. 
