@@ -107,3 +107,18 @@ And of course, the more it's worth.
 
 That was really why I was here.
 Some of these crystals were worth good money, and I was _really_ poor. 
+Not all of them of course.
+Probably only a hand full of these would be worth any really money.
+But I got my own value out of the rest, so the effort was well worth it.
+
+I spent a few minutes rekindling my fire, so that I could see by its light.
+Then I walked along the beach, gathering my stones as the water lapped at my ankles.
+The cold bit into my fingers and hands as I reached beneath the surface to scoop each stone out.
+
+Whenever my hip sack was full I emptied the contents on the blanket, which was still laying by the fire. 
+It took about four trips to gather them all.
+I had made a sizable pile on the blanket, to which I added my incomplete final load.
+
+I spread them out across the blanket and admired my work.
+The light shining from them dazzled my magic attuned eyes.
+
